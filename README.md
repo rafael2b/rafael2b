@@ -1,4 +1,4 @@
-## **Bom dia**
+## **Bom dia 😎**
 
 Meu nome é Rafael Costa
 
